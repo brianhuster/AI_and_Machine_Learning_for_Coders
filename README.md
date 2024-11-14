@@ -6,3 +6,5 @@ Chào mọi người, cảm ơn mọi người đã ghé qua thăm một góc nh
 
 > **Gmail:** [trinhhuynhthinhkhang.work@gmail.com](mailto:trinhhuynhthinhkhang.work@gmail.com)<br>
 **Fanpage Facebook:** [Nhật ký học tập của Khang](https://www.facebook.com/profile.php?id=61565368375171)
+
+![image](https://github.com/user-attachments/assets/16dca784-fac6-4a1a-bd71-76b86e3f3a3c)
